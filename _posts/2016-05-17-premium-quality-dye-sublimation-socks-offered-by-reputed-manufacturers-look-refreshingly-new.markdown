@@ -6,7 +6,7 @@ layout: post
 <p style="text-align: justify;">The huge demand for sublimation clothing particularly in the sports and gym wear,fitness and active wear segment has led high profile manufacturers and suppliers to launch premium quality dye sublimation socks, adding to team wear look and appeal.
 </p>
 
-<p><a href="http://www.oasissublimation.com/manufactures/icy-slopes-in-vivid-colour-sublimated-socks/"><img src="http://www.oasissublimation.com/wp-content/uploads/2016/04/Icy-Slopes-in-vivid-Colour-Sublimated-Socks.jpg" alt="wholesale sublimation socks" width="150" height="250" /></a></p>
+<p><a href="http://www.oasissublimation.com/manufactures/icy-slopes-in-vivid-colour-sublimated-socks/"><img src="http://www.oasissublimation.com/wp-content/uploads/2016/04/Icy-Slopes-in-vivid-Colour-Sublimated-Socks.jpg" alt="wholesale sublimation socks" width="150" height="350" /></a></p>
 
 <p style="text-align: justify;">Premium quality sublimation print socks in every colour and type, whether long, mid length, ankle length or stocking style can be easily picked up in bulk directly from sublimation clothing manufacturers. Reputed firms that have massive production scales offer factory price <a href="http://www.oasissublimation.com/wholesale/sublimated-socks/" target="_blank">wholesale sublimation socks</a> to all those looking for genuine quality sublimation print socks, in every conceivable colour and print that might be required.</p>
 
